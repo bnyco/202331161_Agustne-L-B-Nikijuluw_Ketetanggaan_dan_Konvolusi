@@ -1,0 +1,1 @@
+# 202331161_Agustne-L-B-Nikijuluw_Ketetanggaan_dan_Konvolusi
